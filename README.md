@@ -1,2 +1,2 @@
 
-![Profile_Banner](https://github.com/dayeya/dayeya/assets/129618322/42a8ae4f-4cf1-4441-b685-c2bf2a48e27c)
+![banner](https://github.com/dayeya/dayeya/assets/129618322/0e42489e-bc02-48bc-8858-2cebf54130e3)
